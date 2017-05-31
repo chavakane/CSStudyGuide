@@ -1,1 +1,1 @@
-# Computer Scienc eStudy Guide
+# Computer Science Study Guide
